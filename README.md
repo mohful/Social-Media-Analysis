@@ -1,0 +1,1 @@
+Analyzing the spread of information looking at the influence of individuals and the communities they are in, and analyzing trends in the influence of communities, like which communities are likely to grow or become influential in the future.
